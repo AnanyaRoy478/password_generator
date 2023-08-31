@@ -1,1 +1,1 @@
-click here to experience the game 👉🏼https://dicegameananya.netlify.app/
+click here to experience the app 👉🏼https://getrandompasswordananya.netlify.app
